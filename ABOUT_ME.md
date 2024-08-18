@@ -1,0 +1,9 @@
+- 👋 Hi, I’m **Sambit Palai**
+- 👀 I’m interested in ...
+- 🌱 I’m currently learning ...
+- 💞️ I’m looking to collaborate on ...
+- 📫 How to reach me  : sambitpalai2005@gmail.com
+- 😄 Pronouns : He/Him
+- ⚡ Fun fact : We share the same thought .
+
+
